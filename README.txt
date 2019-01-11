@@ -1,1 +1,1 @@
-jackie was here, he is very cool!
+Tommy is very cool!
